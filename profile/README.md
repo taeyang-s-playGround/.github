@@ -1,7 +1,7 @@
 ## Hi there 👋
 
 하고 싶은거 다 해버리기
-![image](https://github.com/user-attachments/assets/73213a68-b86f-4951-9ec4-638ac5bb330b)
+![image](https://github.com/user-attachments/assets/f3e07140-15c2-4d5b-86b4-42f72dffabf9)
 
 
 <!--
