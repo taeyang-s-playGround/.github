@@ -1,7 +1,8 @@
 ## Hi there 👋
 
 하고 싶은거 다 해버리기
-![image](https://github.com/user-attachments/assets/f3e07140-15c2-4d5b-86b4-42f72dffabf9)
+
+![tumblr_oblwk258iu1upe1ufo1_540](https://github.com/user-attachments/assets/6acdb818-7431-4ee4-87b3-9bac770574e7)
 
 
 <!--
